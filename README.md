@@ -1,4 +1,4 @@
-# Free-1000#-Playstation-Gift-Card-Generator-Free-100-PSN-Gift-Card-Codes-December-Updated
+# Free-1000$-Playstation-Gift-Card-Generator-Free-100-PSN-Gift-Card-Codes-December-Updated
 
 Get free 1000$ PlayStation Gift Card codes easily with our generator.
 
